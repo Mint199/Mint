@@ -1,2 +1,2 @@
 أفضل الأضافات في بلوجر
-Mint-web.blogspto.com
+Mint-web.blogspot.com
